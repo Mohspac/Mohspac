@@ -4,7 +4,7 @@ Welcome to my GitHub profile! I'm a mid-career professional currently in the pro
 
 ## About Me
 
-I come from a background in Business Administration. However, my passion for technology and innovation has led me to embark on a journey to transition into the tech industry. With a solid foundation in coding skills and a strong drive to learn and grow, I'm eager to explore new opportunities and contribute to impactful projects in the tech space.
+I come from a background in Market Research interviewer | Customer support Representative . However, my passion for technology and innovation has led me to embark on a journey to transition into the tech industry. With a solid foundation in coding skills and a strong drive to learn and grow, I'm eager to explore new opportunities and contribute to impactful projects in the tech space.
 
 ## What You'll Find Here
 
